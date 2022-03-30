@@ -1,1 +1,0 @@
-# canarin-solutions.github.io
